@@ -6,7 +6,7 @@ My codes model chemical systems in nature, and some of them try to make sense of
 
 🧊 🏔️ 🪨  🧪 ⚛️ 🧮 🌟 ☄️ 🪐
 
-📍 I am currently an NSF Astronomy & Astrophysics postdoctoral fellow at Dartmouth College.
+📍 I am currently transitioning from an NSF Astronomy & Astrophysics Postdoctoral Fellowship to an Assistant Professorship at Trinity University.
 
 
 
