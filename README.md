@@ -6,7 +6,7 @@ My codes model chemical systems in nature, and some of them try to make sense of
 
 🧊 🏔️ 🪨  🧪 ⚛️ 🧮 🌟 ☄️ 🪐
 
-📍 Assistant Professor, Trinity University (starting Fall 2024)
+📍 Assistant Professor, Trinity University
 
 
 
